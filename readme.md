@@ -1,1 +1,1 @@
-Just an Archive of all my Tweets since the 26. Decembre 2021.
+Just an Archive of all my Tweets since the 26. December 2021.
